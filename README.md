@@ -1,2 +1,0 @@
-# MCCHAMBA
-Mauricio Consigue Chamba
